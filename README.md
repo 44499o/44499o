@@ -1,5 +1,5 @@
 ## **‎[read](https://sshins.straw.page/)**
 
-![](https://komarev.com/ghpvc/?username=44499o&color=blue&label=tomatoes)
+![](https://komarev.com/ghpvc/?username=44499o&color=red&label=tomatoes)
 
-<img width="196" height="100" alt="werre th Hiorilings pls feed us!!!" src="https://github.com/user-attachments/assets/0d6a49bc-7e89-4697-b9fb-a80b0e6e99bb" />
+<img width="1000" height="902" alt="Tak berjudul819_20260926073407" src="https://github.com/user-attachments/assets/5310ab26-4730-48fd-ab2d-a68b5f593d3a" />
